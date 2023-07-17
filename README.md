@@ -22,5 +22,5 @@ Tất cả quân nhân đều hướng mặt về phía Vương Nhất, đồng
 
 Link truyện:
 
-[Chân Long Chí Tôn Đô Thị](https://tutruyenchu.com/truyen/Chan-Long-Chi-Ton-do-Thi)
+[Chân Long Chí Tôn Đô Thị](https://truyenchuhub.org/truyen/Chan-Long-Chi-Ton-do-Thi)
 </div>
